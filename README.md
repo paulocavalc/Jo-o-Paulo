@@ -1,2 +1,2 @@
-# Jo-o-Paulo
+# Joao Paulo
 Eu sou surdo
